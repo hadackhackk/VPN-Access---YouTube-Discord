@@ -1,1 +1,1 @@
-# VPN-Access---YouTube-Discord
+# VPN Access - YouTube & Discord
